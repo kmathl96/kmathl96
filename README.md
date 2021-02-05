@@ -1,1 +1,3 @@
-안녕하세요! :hatching_chick:
+안녕하세요, 이경민입니다! :hatching_chick:
+
+잘 부탁드려요 :blush:
